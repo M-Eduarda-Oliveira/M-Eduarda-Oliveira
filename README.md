@@ -1,4 +1,4 @@
-# Maria Eduarda Oliveira | Student
+# Maria Eduarda Oliveira | Front-end Student
 ## ✨ Hi, how you doing?✨
 
 #### 👀 I am a very curious girl who likes to learn a little bit of everything. Nothing is very planned in my life so I follow what curiosity dictates.
